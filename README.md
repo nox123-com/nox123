@@ -1,6 +1,6 @@
 # NOX123 – Platform Gaming Modern Support Crypto
 
-[NOX123](https://nox123.com) adalah platform gaming modern yang mendukung transaksi crypto dengan aman dan cepat.  
+[NOX123](https://t.co/qdm3sOhAHO) adalah platform gaming modern yang mendukung transaksi crypto dengan aman dan cepat.  
 Nikmati ribuan slot dari provider top, bonus eksklusif, dan layanan pelanggan 24/7.  
 
 ## Fitur Utama
@@ -10,4 +10,4 @@ Nikmati ribuan slot dari provider top, bonus eksklusif, dan layanan pelanggan 24
 - Bonus eksklusif untuk pengguna crypto
 - Akses mudah via desktop, mobile, atau Telegram
 
-Kunjungi situs resmi: [https://nox123.com](https://nox123.com)
+Kunjungi situs resmi: [https://nox123.com](https://t.co/qdm3sOhAHO)
